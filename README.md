@@ -1,0 +1,2 @@
+# Nezzy-ST
+JANGAN NYEPAM BOT 
